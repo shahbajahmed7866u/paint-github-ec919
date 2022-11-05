@@ -1,1 +1,0 @@
-# paint-github-ec919
